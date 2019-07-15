@@ -1,2 +1,2 @@
 # MC-in-MB
-A blog about motor cycle riding in manitoba
+A blog about motor cycle riding in Manitoba
